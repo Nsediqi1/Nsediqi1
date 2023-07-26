@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nsediqi1
-- 👀 I’m interested in ... web Design Software and Mobile App
+- 👀 I’m interested in ... web Design Software and Cyber Security
 - 🌱 I’m currently learning ... Cyber security
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Nasratullah.gwfs@gmail.com
